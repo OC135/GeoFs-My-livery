@@ -1,1 +1,1 @@
-自分が作成したLvery Selectorの塗装です。
+自分が作成したLivery Selectorの塗装です。
